@@ -6,7 +6,7 @@
 - Teaching Assistant, engaging with students in the Programming with Data (DS 2000) to foster understanding and growth 🎓📝
 - Member and Event Organizer during Undergraduate in Computer Society of India for technical growth and professional development 🌟
 - Eager to expand skills, leverage experiences, and learn from industry professionals 🌱
-- Actively seeking SDE/Data Analytics internship opportunities for Summer/Fall 2024 🌤️
+- Actively seeking SDE/Data Analytics full-time opportunities 🌤️
 - Let's connect: [LinkedIn](https://www.linkedin.com/in/d-prajapati/) 🤝
 - Email: deepprajapati30801@gmail.com ✉️
 - Feel free to reach out if you have suitable roles or insights to share 📬🤝
